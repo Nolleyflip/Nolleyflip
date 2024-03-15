@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on anything that can help me improve 
 - 📫 How to reach me extend your arms :)
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: the superbowl is on my birthday this year and the Niners are taking it
 
 <!---
 Nolleyflip/Nolleyflip is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
